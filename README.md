@@ -1,1 +1,1 @@
-The is a profession school
+The is a professional school
